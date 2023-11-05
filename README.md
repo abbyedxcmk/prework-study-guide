@@ -1,2 +1,2 @@
 # prework-study-guide
-Pre Srudy
+Pre Study Guide
